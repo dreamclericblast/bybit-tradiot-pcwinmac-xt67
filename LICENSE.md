@@ -1,4 +1,4 @@
-# 
+# Profissional bybit trading bot complementos for Mac OS | Ultimato bybit trading bot complementos for PC Windows. Featuring API de exchange descentralizada and pools de liquidez DEX — optimized for maximum performance.
 
 
 
